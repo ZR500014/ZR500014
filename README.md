@@ -2,7 +2,7 @@
 - 👀 I’m interested in games and development
 - 🌱 I’m currently learning not much
 - 💞️ I’m looking to collaborate on not really anything
-- 📫 How to reach me gmail
+- 📫 How to reach me proton mail
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: IDK
 
